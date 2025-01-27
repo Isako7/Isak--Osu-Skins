@@ -10,3 +10,7 @@
 
 # [- Amaestric Lemon -](https://drive.google.com/file/d/1mnIc8uJlDkap9k93iJ5ZFgdLkumk1U43/view?usp=drive_link)
 ![](https://osu.ppy.sh/ss/19480965/0aa6)
+
+
+# [- - # - Aristia Hitsounds -](https://drive.google.com/file/d/14_2N4QVGfS8lpmqbgbsdqM3YiPyKpHrx/view?usp=drive_link)
+![](https://osu.ppy.sh/ss/19480986/6d31)
