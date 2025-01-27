@@ -26,3 +26,7 @@
 
 # [- Vaxei 2023 Happystick GREEN -](https://drive.google.com/file/d/1UUU0oncygBF9JeLz1EA0wehYVmUwuR1N/view?usp=drive_link)
 ![](https://osu.ppy.sh/ss/19481004/6c01)
+
+
+# [- Z DT -](https://drive.google.com/file/d/1b-u-c8ktNEe-hr2vHJxGUiKr2y1R-KJ8/view?usp=drive_link)
+![](https://osu.ppy.sh/ss/19481011/d5bf)
