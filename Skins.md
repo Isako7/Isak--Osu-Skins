@@ -18,3 +18,7 @@
 
 # [- Måsstaden (WIP) -](https://drive.google.com/file/d/1NB387fb-kHyszGHgVGWNE98nMpOZnJTK/view?usp=drive_link)
 ![](https://osu.ppy.sh/ss/19480993/060c)
+
+
+# [- Zadymiarz edit -](https://drive.google.com/file/d/1TFGHR05oz9gyHnSe8RcptC5E6KdTaRue/view?usp=drive_link)
+![](https://osu.ppy.sh/ss/19481002/44ff)
